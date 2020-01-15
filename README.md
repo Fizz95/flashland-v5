@@ -1,2 +1,5 @@
 # flashland-v5
-flashland-v5 by Fares
+ FlashLand v5 by Fares ! 
+  Enjoy !! 
+  
+  Contact : fargamingpro@gmail.com
